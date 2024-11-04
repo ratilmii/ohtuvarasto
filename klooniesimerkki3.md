@@ -1,1 +1,0 @@
-Klooniesimerkki alkuperäisessä repossa.

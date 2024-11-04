@@ -1,1 +1,0 @@
-Ohtukloonin esimerkkitiedosto 1.
